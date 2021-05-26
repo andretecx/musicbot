@@ -1,1 +1,3 @@
 # musicbot
+
+TUTTI I DIRITTI SONO RISERVATI
